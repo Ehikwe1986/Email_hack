@@ -1,5 +1,5 @@
 # Email_hack
-All crack email (yahoo:gmail:spambox:hotmai)    ......  created by mohammad &amp;&amp; arman
+All crack email (ehikwee@yahoo.com:gmail:spambox:hotmai)    ......  created by mohammad &amp;&amp; arman
 # creator Mohammad_sultani 
 # YouTube mojammad hacker
 # https://github.com/mohammadjan1122
